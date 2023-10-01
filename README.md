@@ -1,3 +1,3 @@
 # cguerrero358.github.io
 CV Cristian Guerrero
-[Ver Aqui] (https://cguerrero358.github.io/)https://cguerrero358.github.io/
+[Ver Aqui] https://cguerrero358.github.io/
